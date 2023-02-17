@@ -12,4 +12,4 @@
 
 
 扫码联系微信：
-![image](wxhao.jped)
+![image](wxhao.jpg)
